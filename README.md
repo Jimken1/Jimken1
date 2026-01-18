@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jimken1
-- 👀 I’m interested in Game development, web development, and machine learning
+- 👀 I’m involved in Game development, web development, and machine learning
 - 🌱 I’m currently learning softwawre development
 - 💞️ I’m looking to collaborate on game, software and web design projects
 - 📫 How to reach me +2349155164087, and jimken_1 on instsagram
